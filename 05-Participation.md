@@ -2,6 +2,10 @@
 
 Do all of the creative activities listed on the [course website](https://crwr1200.netlify.com/category/activities/). Do one activity each week for nine weeks. Instructions are included for each activity. If you get stuck, ask for help (see the document entitled [Asking for Help Online](06-Asking-for-Help-Online.md)).
 
+The creative exercises are designed to help you broaden your creativity, exercise your imagination, and have some fun along the way. The short narratives, words, images, sounds, and so on that are associated with the creative activities are intended to provide possible material to use in your composition. But your composition does not have to include all the things you write down while doing your creative exercises. Just choose a few things and integrate them. For example, if you write about a bird in a creative exercise, you might use the image of a bird in your composition. You can transfer the images, words, or whatever directly into your composition, weaving them into the text, or you can adapt and apply them in different ways. It's up to you. The exercises provide textual fuel for the composition. 
+
+As you do the creative exercises, write down the short narratives of the exercises (as well as notes about them) and include these in your [Exercises document](Exercises.md)).
+
 Then, after you have completed nine weeks of creative exercises, writing, and readings, you will have two weeks to complete your draft composition. You may use these two weeks to work on your own or in consultation with your instructor (using the communication methods outlined in the section on [asking for help ](06-Asking-for-Help-Online.md).
 
 This is an online class, which makes your willingness to engage creatively
