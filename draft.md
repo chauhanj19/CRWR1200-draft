@@ -1,9 +1,2 @@
-# Your Draft
-
-This is your draft. You will replace this placeholder text with your own text.
-
-Here is a new paragraph. It has a blank line before it. Generally, the only formatting you will need to know about is how to create new paragraphs, headers, and links. Here's a handy [guide on those topics](https://help.github.com/articles/basic-writing-and-formatting-syntax/). You may wish to bookmark it.
-
-To edit this text, click the pencil icon above and to the right.
-
-Happy writing!
+creative writing activity one 
+I drove around the east van side of vancouver, to be more precise east hastings. I did not want to get out of my car because i felt very unsafe in that part of the neighbourhood at night. What I was was really eye opening, it made me feel blessed and motivated to complete my eduction and do something with my life. I saw alot of homeless poeple doing drugs, acting crazy and some who have compltely lot there minds. This expereience made me feel very uneasy and i asked myself, " how many wrong turns did these people have to make to end up here," without a home or family, food or clothes. Obviously not everyone ended up there because of poor decisions, sometimes its just ends up being because of the cards you've been dealt in your life and had no other choice. For me though its crazy to think that one block is the difference between the homeless and vancouvers busy nightlife.
